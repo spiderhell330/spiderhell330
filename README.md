@@ -1,8 +1,4 @@
-꒰꒰ spiderhell330 / pajonk
-╰╮  ⭔ she/he nonbinary // pl/eng
-   🎀 INTP-ISTP aquarius ╱ ﹕
- ♡  fnaf and undertale enjoyer 🩰 ;;꒱
- ꒰ discord- @spiderhell330#0929  ꒱꒱ 
+꒰꒰ pajonk // ISTP/INTP // pl/eng
 
 <!---
 spiderhell330/spiderhell330 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
